@@ -12,6 +12,6 @@
 为了保障安全，避免恶意广告和病毒，建议选择口碑好的平台并使用广告拦截和反病毒软件。同时，选择一个更新频繁的平台，确保你不会错过任何新影片。
 总之，选择一个安全、高清、更新及时的平台，能让你享受更好的观影体验，同时保护个人隐私和设备安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/po20250708/po08 ）</span>
 
 
